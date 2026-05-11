@@ -1,0 +1,1 @@
+# 24343008_-Firnanda-Rizki-Pratama.-Mt_Pengolahan-Citra-Digital-_Week9
